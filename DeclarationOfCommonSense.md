@@ -14,7 +14,7 @@ __We hold these truths to be self-evident__:
 7.	A united people must embrace their common humanity, or a divided house will fall.
 8.	It is the responsibility of leadership to help its citizenry find common cause.
 9.	It is the responsibility of the government to secure these inalienable rights.
-10.	A government should that suborns the inalienable rights or encourages devolution into tribalism violates the contract of society and must be reformed.
+10.	A government that suborns the inalienable rights or encourages devolution into tribalism violates the contract of society and must be reformed.
 
 Whenever any factionalism threatens a society, or a government routinely appropriates the life, liberty, or happiness of its citizenry, it is the responsibility of the citizenry to make all ardent effort to reform.  While it is the nature of humanity to suffer while evils are sufferable, it is nobler to oppose society’s suffering and work to end it.
 
